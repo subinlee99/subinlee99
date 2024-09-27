@@ -1,5 +1,5 @@
 ## Hi 👋
-I am currently studying at UC Berkeley, College of Engineering
+I am currently studying at UC Berkeley, College of Engineering - Master of Design
 
 🌱 Check out my Porfolio : https://drive.google.com/file/d/1Yy-jLimW72nekt87saZZml3WpmNcggZ-/view?usp=drive_link
 
